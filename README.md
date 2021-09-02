@@ -1,1 +1,0 @@
-# Super-Predictory-of-IPL
